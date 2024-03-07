@@ -6,6 +6,8 @@
 
 ------
 
-
+<br><br>
+<strong>
 <i> i didnt make this, [this is the original website](https://youareanidiot.cc) </i>
+</strong>
 
